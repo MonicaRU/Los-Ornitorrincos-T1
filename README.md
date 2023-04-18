@@ -58,7 +58,7 @@ En Australia, su lugar de origen se desarrollan muchos incendios y esto provocó
 Zonas de agua dulce: lagos, lagunas, ríos y arroyos
 
 ### Depredadores:
-Pocos depredadores en la naturaleza pero algunos son:\
+Pocos depredadores en la naturaleza pero algunos son:
 
 - Serpientes.
 - Ratas de agua.
