@@ -47,7 +47,7 @@ En Australia, su lugar de origen se desarrollan muchos incendios y esto provocó
 ![Ornitorrinco 2.jpg]
 ###### **Fig.2** (ANAYA. S.A, 19. Recuperado de: https://pt.scribd.com/document/440008252/el-ornitorrinco#)
 
-### Alimentación\
+### Alimentación:
 1. Lombrices 
 2. Larvas de insectos 
 3. Camarones de agua dulce
@@ -75,13 +75,13 @@ Los machos tienen espolones en sus patas traseras que están conectadas con una 
 
 ###### **Fig.3** (Chaiman, M. 2020. Recuperado de:https://prezi.com/p/hbumjymlbpal/ornitorrinco/)
 
-#### Envenenamiento en seres humanos:\
+#### Envenenamiento en seres humanos:
 Provoca hinchazón extrema y un dolor muy fuerte que ni analgésicos habitaules reducen, pero no hay un efecto peligroso.
 \
-\ 
+\
 \
 
-#### Referencias:\
+#### Referencias:
 National Geographic, (2023).Los ornitorrincos desvelan secretos sobre la evolución de los mamíferos. https://www.nationalgeographic.com.es/naturaleza/ornitorrincos-desvelan-secretos-sobre-evolucion-mamiferos_16297 \
 Chaiman, M. (2020).Ornitorrinco. https://prezi.com/p/hbumjymlbpal/ornitorrinco/ \
 ANAYA. S.A, (2019).El Ornitorrinco. https://pt.scribd.com/document/440008252/el-ornitorrinco# \
