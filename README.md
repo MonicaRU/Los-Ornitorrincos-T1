@@ -73,7 +73,7 @@ Pocos depredadores en la naturaleza pero algunos son:\
 #### Ubicación:
 Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen) 
 
-![ornitorrincoo]
+![02-6.jpg]
 
 ###### **Fig.3** (Chaiman, M. 2020. Recuperado de:https://prezi.com/p/hbumjymlbpal/ornitorrinco/)
 
@@ -81,7 +81,7 @@ Los machos tienen espolones en sus patas traseras que están conectadas con una 
 Provoca hinchazón extrema y un dolor muy fuerte que ni analgésicos habitaules reducen, pero no hay un efecto peligroso.
 
 
-\
+
 
 #### Referencias:
 National Geographic, (2023).Los ornitorrincos desvelan secretos sobre la evolución de los mamíferos. https://www.nationalgeographic.com.es/naturaleza/ornitorrincos-desvelan-secretos-sobre-evolucion-mamiferos_16297 \
