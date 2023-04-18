@@ -45,6 +45,7 @@ En Australia, su lugar de origen se desarrollan muchos incendios y esto provocó
 
 
 ![Ornitorrinco.jpg]
+
 ###### **Fig.2** (ANAYA. S.A, 19. Recuperado de: https://pt.scribd.com/document/440008252/el-ornitorrinco#)
 
 ### Alimentación:
@@ -70,16 +71,16 @@ Pocos depredadores en la naturaleza pero algunos son:\
 
 ### Capacidad de Veneno:
 #### Ubicación:
-Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen)
+Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen) \
 
-! [Veneno.png]
+![Veneno.png]
 
 ###### **Fig.3** (Chaiman, M. 2020. Recuperado de:https://prezi.com/p/hbumjymlbpal/ornitorrinco/)
 
 #### Envenenamiento en seres humanos:
 Provoca hinchazón extrema y un dolor muy fuerte que ni analgésicos habitaules reducen, pero no hay un efecto peligroso.
 \
-\
+
 \
 
 #### Referencias:
