@@ -44,7 +44,7 @@ En Australia, su lugar de origen se desarrollan muchos incendios y esto provocó
 - Pico en forma de paleta, no más de 7cm.
 
 
-![28.jpg]
+![28.jpg] (https://docplayer.es/docs-images/66/55449323/images/28-3.jpg)
 
 ###### **Fig.2** (ANAYA. S.A, 19. Recuperado de: https://pt.scribd.com/document/440008252/el-ornitorrinco#)
 
@@ -71,7 +71,7 @@ Pocos depredadores en la naturaleza pero algunos son:\
 
 ### Capacidad de Veneno:
 #### Ubicación:
-Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen) \
+Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen) 
 
 ![Ornitoriincoo.jpg]
 
@@ -79,7 +79,7 @@ Los machos tienen espolones en sus patas traseras que están conectadas con una 
 
 #### Envenenamiento en seres humanos:
 Provoca hinchazón extrema y un dolor muy fuerte que ni analgésicos habitaules reducen, pero no hay un efecto peligroso.
-\
+
 
 \
 
