@@ -44,7 +44,7 @@ En Australia, su lugar de origen se desarrollan muchos incendios y esto provocó
 - Pico en forma de paleta, no más de 7cm.
 
 
-![Ornitorrinco.jpg]
+![28.jpg]
 
 ###### **Fig.2** (ANAYA. S.A, 19. Recuperado de: https://pt.scribd.com/document/440008252/el-ornitorrinco#)
 
@@ -73,7 +73,7 @@ Pocos depredadores en la naturaleza pero algunos son:\
 #### Ubicación:
 Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen) \
 
-![Veneno.png]
+![Ornitoriincoo.jpg]
 
 ###### **Fig.3** (Chaiman, M. 2020. Recuperado de:https://prezi.com/p/hbumjymlbpal/ornitorrinco/)
 
