@@ -46,7 +46,7 @@ En Australia, su lugar de origen se desarrollan muchos incendios y esto provocó
 
 ![28.jpg](https://docplayer.es/docs-images/66/55449323/images/28-3.jpg)
 
-###### **Fig.2** (ANAYA. S.A, 19. Recuperado de: https://pt.scribd.com/document/440008252/el-ornitorrinco#)
+###### **Fig.2** (Quintanilla,J. 2018. Recuperado de: https://docplayer.es/55449323-Biodiversidad-y-clasificacion.html)
 
 ### Alimentación:
 1. Lombrices 
