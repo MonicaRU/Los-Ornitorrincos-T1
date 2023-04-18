@@ -73,7 +73,7 @@ Pocos depredadores en la naturaleza pero algunos son:\
 #### Ubicación:
 Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen) 
 
-![Ornitorincoo.jpg]
+![ornitorincoo.jpg]
 
 ###### **Fig.3** (Chaiman, M. 2020. Recuperado de:https://prezi.com/p/hbumjymlbpal/ornitorrinco/)
 
