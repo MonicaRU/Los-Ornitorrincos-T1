@@ -71,6 +71,7 @@ Pocos depredadores en la naturaleza pero algunos son:\
 ### Capacidad de Veneno:
 #### Ubicación:
 Los machos tienen espolones en sus patas traseras que están conectadas con una glándula venenosa en el muslo. (ver imágen)
+
 ! [Veneno.png]
 
 ###### **Fig.3** (Chaiman, M. 2020. Recuperado de:https://prezi.com/p/hbumjymlbpal/ornitorrinco/)
